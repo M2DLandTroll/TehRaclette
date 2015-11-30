@@ -10,5 +10,5 @@ Date prévue: **Vendredi 11 Décembre**
 * Benoît SAUVERE
 * Elliot FELGINES
 * Julien CUSTOJA
-* Manatsoa Andriamihary RAZANAJATOVO (pourquoi est-ce si long?!)
+* Manantsoa Andriamihary RAZANAJATOVO (pourquoi est-ce si long?!)
 * Zaccaria ZYAT (ne mange pas de porc btw) 
