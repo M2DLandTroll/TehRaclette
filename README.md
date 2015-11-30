@@ -11,4 +11,5 @@ Date prévue: **Vendredi 11 Décembre**
 * Elliot FELGINES
 * Julien CUSTOJA
 * Manantsoa Andriamihary RAZANAJATOVO (pourquoi est-ce si long?!)
-* Zaccaria ZYAT (ne mange pas de porc btw) 
+* Zaccaria ZYAT (ne mange pas de porc btw)
+* Léo MIEULET (on l'avait oublié)
