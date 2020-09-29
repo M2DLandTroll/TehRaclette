@@ -12,3 +12,5 @@ Date prévue: **Vendredi 11 Décembre**
 * Julien CUSTOJA
 * Manantsoa Andriamihary RAZANAJATOVO (pourquoi est-ce si long?!)
 * Zaccaria ZYAT (ne mange pas de porc btw) 
+
+![Image](https://tse4-mm.cn.bing.net/th/id/OIP.8IuIXs_lCQiOjA_vtVf25QHaGR?pid=Api&rs=1) 
